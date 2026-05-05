@@ -1,0 +1,1 @@
+# psixoyo-l-karsu-uz
